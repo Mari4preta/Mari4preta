@@ -1,0 +1,7 @@
+- Hi, I’m Maria Eduarda Luna
+- I’m interested in nutrition
+- I am currently learning a nutrition technician course
+- I'm looking to help with my mental health
+- How to reach me me.luna2205@gmail.com
+- Pronouns: she/her
+- Fun fact: sou chamada de "Maria Preta"
